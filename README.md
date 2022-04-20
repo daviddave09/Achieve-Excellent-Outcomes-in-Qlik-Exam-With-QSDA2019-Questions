@@ -1,0 +1,1 @@
+# Achieve-Excellent-Outcomes-in-Qlik-Exam-With-QSDA2019-Questions
